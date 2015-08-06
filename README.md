@@ -15,7 +15,6 @@ Because I said so!
 * Proposes a change to the supreme court to stop 'judicial activism'
 * Promises to overturn obamacare
 * Says we need to build a crypto backdoor
-* Insults a growing ethnic or cultural minority group
 
 ### E Pluribus, Unum
 To be really fair, you should have a member of each group in your party.
